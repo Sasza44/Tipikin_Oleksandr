@@ -1,1 +1,1 @@
-# Tipikin_Oleksandr
+# Tipikin
